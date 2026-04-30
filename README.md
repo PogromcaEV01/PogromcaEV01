@@ -1,4 +1,31 @@
 ## ( ߬⚈ o⚈ꪷ)(˶>⩊<˶)
+##⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
+      /)    /)
+    (｡•ㅅ•｡)〝₎₎ Welcome! ✦₊ ˊ˗ 
+. .╭∪─∪────────── ✦ ⁺.
+. .┊ ◟﹫ Name : 
+. .┊﹒𐐪 Age : 
+. .┊ꜝꜝ﹒Pronouns : 
+. .┊ ◟ヾ Extra : 
+. .┊﹒𐐪 Extra : 
+. .┊ ◟﹫ Extra : 
+   ╰─────────────  ✦ ⁺.
+⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
+
+-search 'SarinyaDaYaya' for more!
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 <!--
 **PogromcaEV01/PogromcaEV01** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
